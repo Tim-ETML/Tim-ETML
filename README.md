@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning taling Tom
 - 💞️ I’m looking to collaborate with Ben
 - 📫 How to reach me : TimFreezeIndustrie.com
+- ✨ Mirko <3
 
 <!---
 Tim-ETML/Tim-ETML is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
