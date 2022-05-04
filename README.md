@@ -2,7 +2,7 @@
 - 👀 I’m interested in talking Ben
 - 🌱 I’m currently learning taling Tom
 - 💞️ I’m looking to collaborate with Ben
-- 📫 How to reach me : TimFreezeIndustrie.com
+- 📫 How to reach me : TimFreeze.com
 - ✨ Sanji <3 my baby love
 
 <!---
